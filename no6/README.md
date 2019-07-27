@@ -1,1 +1,1 @@
-Maaf karena saya tidak tau cara menambahkan screenshot ke readme jadi saya taruh di link tulisan screenshotnya
+no6/6a.jpg
